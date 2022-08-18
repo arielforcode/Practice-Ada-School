@@ -18,9 +18,11 @@
 
 ##Preparacion
 
-En un bowl mezcla la harina, la sal, la levadura y el aceite de oliva. Agrega poco a poco el agua e incorpora. Amasa hasta tener una consistencia firme y uniforme.
-Junta la masa con tus manos hasta formar una bolita. Coloca en un bowl previamente engrasado con aceite y cubre con un trapo. Deja reposar hasta que doble su tamaño.
-Con ayuda de tus manos, retira el exceso de aire de la masa. En una superficie enharinada, extiende la masa con un rodillo hasta obtener un grosor de 2 mm y corta del tamaño de tu base para pizza.
-Cubre con frijoles refritos, queso Oaxaca, chorizo frito, cebolla morada, chile cuaresmeño y elote dulce al gusto. Hornea por 15 minutos a 200°C.
-Corta y sirve caliente.
+1. En un bowl mezcla la harina, la sal, la levadura y el aceite de oliva. 
+2. Agrega poco a poco el agua e incorpora. Amasa hasta tener una consistencia firme y uniforme.
+3. Junta la masa con tus manos hasta formar una bolita. Coloca en un bowl previamente engrasado con aceite y cubre con un trapo. Deja reposar hasta que doble su tamaño.
+4. Con ayuda de tus manos, retira el exceso de aire de la masa. 
+5. En una superficie enharinada, extiende la masa con un rodillo hasta obtener un grosor de 2 mm y corta del tamaño de tu base para pizza.
+6. Cubre con frijoles refritos, queso Oaxaca, chorizo frito, cebolla morada, chile cuaresmeño y elote dulce al gusto. Hornea por 15 minutos a 200°C.
+7. Corta y sirve caliente.
 
