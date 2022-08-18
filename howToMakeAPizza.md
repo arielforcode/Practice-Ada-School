@@ -10,10 +10,12 @@
 6. 1/2 cucharadas de azúcar
 7. 1 taza de queso mozzarella, en tiritas
 8. 1 taza de salsa de tomate
+9. 1 taza de salda de tomate
 9. 1 1/2 tazas de queso mozzarella, rallado
 10. 1 taza de jamón, en cuadritos
 11. 1 taza de piña, en cuadritos
 12. suficiente de aceite de oliva, para barnizar
+13. suficiente de albahaca, en hojas
 13. suficiente de albahaca, en hojas
 
 ##Preparacion
