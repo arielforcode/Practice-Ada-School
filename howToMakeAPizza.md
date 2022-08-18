@@ -26,3 +26,4 @@
 6. Cubre con frijoles refritos, queso Oaxaca, chorizo frito, cebolla morada, chile cuaresmeño y elote dulce al gusto. Hornea por 15 minutos a 200°C.
 7. Corta y sirve caliente.
 
+""Una vez preparada la masa, hay que dejarla reposar en el bowl cubierta con una tela húmeda en un lugar de preferencia cercana a una fuente de calor hasta que doble su volumen.
